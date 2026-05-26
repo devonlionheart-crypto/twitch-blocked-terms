@@ -3,27 +3,63 @@
 **Channel:** Cmdr Devon  
 **Last Updated:** May 2026
 
-This is my personal list of blocked terms for Twitch moderation. Feel free to copy and use it as a starting point for your own channel.
+This is my personal list of blocked terms for Twitch moderation. Feel free to copy and use it.
 
-**Note:** Always remember to make sure you put your personal address, personal phone number, personal real world name and information on your list and combine it with numbers and letters for that appropriate protection like I did.
+**Important:** On Twitch, if you want to keep your personal information private, click the pencil icon next to your terms and change the "Occurrences" to "Private" so it's not visible to viewers.
 
 ### Blocked Terms
 
-- 4n4l, 4nus, a55, a55h0le, a55h0l3, acrotom0ph1lia, alabamah0tp0cket
-- b1tch, b00bs, b00b, b0obs, b0ner, b4st4rd, bl0wj0b
-- cl1t, c0ck, cvm, c*nt, cumdumpst3r
-- d1ck, d1ld0, d4ter4pe
-- f*ck, fvck, f@ggot, f4g, f1sting
-- g00k, g4ngb4ng
-- h0rny, h00ker, h3ntai
-- j1zz, j4ck0ff
-- k!ke
-- l3sb0, l0l1ta
-- m!lf, m4sturb8
-- n!gger, n1gger, n1gga, n4zi
-- püssy, p3nis, p3d0phile, p0rn, pr0n
-- r4pe, r3tard
-- sh1t, sh!t, slüt, 5lut
-- t!ts, tw4t, tr4nny
-- v@gina, v!brator
-- wh0re, z00philia
+z00philia
+wh0r3
+wh0re
+w@nk
+w4nk
+vülva
+v0yeur
+v!brator
+v14gr4
+v@gina
+v4g1na
+upsk1rt
+undr3ssing
+tw@t
+tw4t
+tr4nny
+t1tfuck
+t!ts
+t1ts
+su1c1degirls
+str4pon
+sp1c
+s0d0mize
+sm3gma
+5lut
+slüt
+sk@nk
+sh!thole
+sh1th3ad
+sh!tface
+sh1tb4g
+sh!tass
+sh1tass
+shït
+5h1t
+sh!t
+sh1t
+r!mjob
+r1mjob
+r3tard
+r@p1ng
+r4pe
+qu33f
+puss1
+püssy
+pr0n
+p0rn
+p!ss
+p1ss
+p3nis
+p@k1
+p4ki
+p3d0phile
+0rg4sm
